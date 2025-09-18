@@ -13,11 +13,11 @@ Aesthetic/Tone: Pixel Art, Fast Paced
 
 ## Backstory:
 
- “Anything”, home planet of Blank, is the last planet before Farco, an evil organization who takes planets and their people and puts them to work, gains complete dominance over the whole universe. Blank is tasked with protecting his home planet from the evil mastermind, Guadalupe Hernandex the 67th, as well as freeing his species from the evil grasps of Farco. 
+ “Anything”, home planet of Blank, is the last planet before Farco, an evil organization who takes planets and their people and puts them to work, gains complete dominance over the whole universe. Being the only Kohaku that has wings, Blank is tasked with protecting his home planet from the evil mastermind, Guadalupe Hernandex the 67th, as well as freeing his species from the evil grasps of Farco. But little did anyone know, Blank is just your normal Kohaku, no powers, no nothing! Not even his wings work! Giving in to the pressure of being a hero and gaining fame, Blank decides to do what he can to help despite being powerless.
 
 ## Characters:
 
-Main Protag: Blank(Kohaku), full white avatar with wings.  
+Main Protag: Blank, full white avatar with wings.  
 Main Antag: Farco, an organization with the ultimate dictator, Guadalupe Hernandex the 67th.
 
 ## Audience:
