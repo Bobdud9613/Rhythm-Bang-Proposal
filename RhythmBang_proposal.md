@@ -19,6 +19,7 @@ Aesthetic/Tone: Pixel Art, Fast Paced
 
 Main Protag: Blank, full white avatar with wings.  
 Main Antag: Farco, an organization with the ultimate dictator, Guadalupe Hernandex the 67th.
+Side/Others: Kohaku, name of Blank's species
 
 ## Audience:
 
